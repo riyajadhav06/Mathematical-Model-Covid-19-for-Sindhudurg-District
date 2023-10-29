@@ -1,0 +1,1 @@
+# Mathematical-Model-Covid-19-for-Sindhudurg-District
